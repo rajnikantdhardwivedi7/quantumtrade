@@ -23,7 +23,7 @@
 
 ### 👤 Author
 
-- **Rajnikant Dhar Dwivedi** - [@dharrajnikant](https://x.com/dharrajnikant)
+- **Rajnikant Dhar Dwivedi** - [RAJNIKANT](https://rajnikantdhardwivedi-mu.vercel.app/)
 
 ---
 
