@@ -31,7 +31,7 @@
 
 ## 👥 Developer Community
 
-**GitHub:** [rajnikantdhardwivedi](https://github.com/rajnikantdhardwivedi)
+**GitHub:** [rajnikantdhardwivedi](https://github.com/rajnikantdhardwivedi7)
 
 **Twitter:** [@dharrajnikant](https://x.com/dharrajnikant)
 
